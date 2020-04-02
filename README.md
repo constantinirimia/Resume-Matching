@@ -17,6 +17,6 @@ https://stackoverflow.com/questions/1746501/can-someone-give-an-example-of-cosin
 
 <br/>
 <br/>
-Created by :+1:  ***@Constantin Irimia***
+Created by :+1:  @Constantin Irimia
 
 LinkedIn: https://www.linkedin.com/in/constantin-irimia-0294ab112/
